@@ -17,3 +17,12 @@
 
 - i keep on learning random things am not taught about tech..
 
+## 2026-11-16
+
+- back to class.
+
+## 2026-11-19
+
+- i dont have data so i have not really been active.
+
+- but am back for now.
