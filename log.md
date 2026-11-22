@@ -27,7 +27,7 @@
 
 - but am back for now.
 
-## 2026-11-21
+## 2026-11-22
 
 - i cant be always on  because of two issues.
 
