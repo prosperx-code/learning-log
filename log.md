@@ -26,3 +26,9 @@
 - i dont have data so i have not really been active.
 
 - but am back for now.
+
+## 2026-11-21
+
+- i cant be always on  because of two issues.
+
+- my only enemy is NEPA and DATA.
