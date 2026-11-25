@@ -32,3 +32,10 @@
 - i cant be always on  because of two issues.
 
 - my only enemy is NEPA and DATA.
+
+
+## 2026-11-25
+
+- working on an assignment.
+
+- tuff.
